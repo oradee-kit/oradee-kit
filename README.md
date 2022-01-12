@@ -5,6 +5,6 @@
 
 ## Contact me -
 #### Email - kimkitirat@gmail.com
-#### Visit my [Personal Site](https://www.oradeekit.web.app) 👩🏻‍💻
+#### Visit my [Personal Site](https://oradeekit.web.app) 👩🏻‍💻
 #### Instragram [@ordkim](https://www.instagram.com/ordkim/)
 
